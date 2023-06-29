@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tttbbbqqq
 - 👀 I’m interested in dateOPS
-- 🌱 I’m currently learning 
+- 🌱 I’m currently learning cloud
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me email 736936609@qq.com
 - i'm still learning 
